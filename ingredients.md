@@ -1,0 +1,1 @@
+ghee (clarified butter), nutmeg, mace, pepper, cloves, cardamom, cinnamon, bay leaves, coriander, mint leaves, ginger, onions, tomatoes, green chilies, garlic,saffron,basmati rice,mint leaves,refined oil,kewar,curd,meat(chicken,egg or any other)
