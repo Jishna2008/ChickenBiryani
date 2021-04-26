@@ -17,7 +17,7 @@ _Turn the flame to medium again and add garam masala in it along with ginger jul
 
 _Then add 1 cup cooked rice and spread evenly. Then add saffron water and pour ghee over it. Cook for 15-20 minutes with closed lid and garnish with 1 tbsp fried onions and coriander leaves. Serve hot._
 
-__*Tasty biryani is ready*_
+**_Tasty biryani is ready_**
 
 ######Tips
 
