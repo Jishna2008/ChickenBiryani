@@ -1,4 +1,4 @@
-## Ingredients##
+## Ingredients
 _ghee (clarified butter)_
 _nutmeg_
 _macepepper_
