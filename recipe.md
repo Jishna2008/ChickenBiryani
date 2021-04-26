@@ -1,4 +1,4 @@
-#####Recipe
+##Recipe
 
 
 **Step 1 Prepare saffron and kewra water**
@@ -29,4 +29,4 @@ _If your cooked rice has turned sticky, spread it on a plate and leave it for 5 
 
 _Freshly pound spices bring out the best taste in Biryani, so make sure that you dry roast all the whole spices for a good 2-3 minutes and then pound or grind them_
 
-__*Thank you*__
+**_Thank you_**
