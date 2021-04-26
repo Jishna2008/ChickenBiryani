@@ -1,4 +1,4 @@
-#Recipe#
+**Recipe**
 
 
 **Step 1 Prepare saffron and kewra water**
@@ -19,7 +19,7 @@ _Then add 1 cup cooked rice and spread evenly. Then add saffron water and pour g
 
 **_Tasty biryani is ready_**
 
-#Tips#
+**Tips**
 
 _The first and foremost important thing to take care of while preparing chicken biryani is, always use a heavy-bottomed pan as you would not want the chicken getting cooked._
 
